@@ -1,1 +1,1 @@
-# Measuring-the-Efficacy-of-Youtube-Vlogs
+# Measuring the Efficacy of Youtube Vlogs
